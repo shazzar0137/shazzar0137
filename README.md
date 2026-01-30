@@ -145,9 +145,11 @@ Currently strengthening:
 
 ## 📫 Let’s Connect
 
-- **GitHub:** https://github.com/yourusername
-- **LinkedIn:** https://linkedin.com/in/yourprofile
-- **Email:** your.email@example.com
+- **GitHub:** https://github.com/shazzar0137
+- **LinkedIn:** https://www.linkedin.com/in/daniel-kipngetich-57373021a/
+- **Email:** danielkipngetich10@gmail.com
+- **Phone:**0113727922
+- **Whatsapp:**0762209702
 
 ---
 
